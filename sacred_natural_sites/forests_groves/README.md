@@ -33,7 +33,6 @@ Forest locations known for heightened spiritual energy
 
 **Sacred Groves (Van/Vana):**
 - **Khasi Sacred Groves** (Meghalaya) - Hundreds of groves protected by indigenous communities
-- **Osun-Osogbo Sacred Grove** (wait, that's Nigeria—see Africa section)
 - **Western Ghats Sacred Groves** - Biodiversity hotspots preserved through tradition
 - **Himalayan Dev Bhoomi** - "Land of the Gods," temple forests
 - **Pichavaram Mangrove Forest** - Coastal sacred waters and trees
