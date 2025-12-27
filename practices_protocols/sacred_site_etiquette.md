@@ -82,7 +82,7 @@ Take only photos (when permitted), leave only footprints (in designated areas), 
 - Everyone: Cover head (scarves usually provided)
 - Remove shoes, wash feet
 - No tobacco or alcohol
-- Everyone welcome to langar (community meal)
+- Everyone welcome to [langar](https://en.wiktionary.org/w/index.php?title=%E0%A8%B2%E0%A9%B0%E0%A8%97%E0%A8%B0&oldid=87836608) (community meal)
 
 **Christian Churches:**
 - Generally less strict in modern times
